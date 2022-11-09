@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rejoir
-- 👀 I’m interested in rrading
+- 👀 I’m interested in reading 
 - 🌱 I’m currently learning software engineering 
 - 💞️ I’m looking to collaborate on all of you 
 - 📫 How to reach me  email at nrejoyce94@gmail.com or call me on +263779091287
